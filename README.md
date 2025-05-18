@@ -454,6 +454,9 @@ Whoever fights against Ali is kafir and belongs to hell. \
 If my Ummah pray and fast so much that they become as thin as a bow but they are against you, Allah will throw them into hellfire. \
 `Fara'id us Simtain, vol 1, page 51, hadith 16` `Tarikh Madinah Damishq, by Ibn Asakir, vol 1, page 145, hadith 179`
 
+Muawiya was delighted to hear the news of Hasan's death and performed Sijda. (Exactly what Aisha did for Ali!) \
+`Mukhtasar fi Akhbar al Bashar, by Abul Fada, vol 1, page 183`
+
 Aisha, Talha and Zubayr carried out the war of Jamal against Ali.
 
 # Did Aisha really own the house?
@@ -466,10 +469,6 @@ It cannot be Mihriya either because The Quran (Surah al-Ahzab, ayah 50) has said
 
 Aisha: This is my house and I will not allow. \
 `Tarikh Ya'qubi, vol 2, page 225`
-
-Muawiya was delighted to hear the news of Hasan's death and performed Sijda. (Exactly what A'ishah did for Ali!) \
-`Mukhtasar fi Akhbar al Bashar, by Abul Fada, vol 1, page 183` \
-Here I would again like to remind you of the hadith of the tent, enemies of Ali, Fatima, Hasan and Husayn...
 
 # Sunnis believe The Quran and Sunnah have been corrupted!
 
