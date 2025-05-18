@@ -73,7 +73,7 @@ Fatima was angered by Abu Bakr and did not speak to him until her death. \
 Fatima left in her will that Abu Bakr may not pray upon her, so she was buried nightly, and Abbas ibn Abd-ul-Mutallib prayed. \
 `Saqifah wa Fadak, page 104`
 
-Ali buried Fatimah nightly without informing Abu Bakr. \
+Ali buried Fatima nightly without informing Abu Bakr. \
 `Bukhari 4240`
 
 Abu Bakr wrote Fatima a document of ownership over Fadak, Umar saw and asked what it was, and Abu Bakr answered, so Umar said: How are you going to suffice the people if they rise against you? So Umar took it from Fatima and ripped it up. \
@@ -92,11 +92,11 @@ Whoever has died, without having an Imam, has died a death of jahaliyah. \
 Whoever has died, and is not under a bay'ah, has died a death of jahaliyah. \
 `Sunan Bayhaqi, vol 8, pages 156-157`
 
-Since Fatima never spoke to Abu Bakr again and said that she will complain to Allah about him, she couldn't have considered him as her Imam. So who was the Imam of Fatimah?
+Since Fatima never spoke to Abu Bakr again and said that she will complain to Allah about him, she couldn't have considered him as her Imam. So who was the Imam of Fatima?
 
 # Umar's attack on Fatima
 
-Abu Bakr commanded Umar to bring Ali to him in the worst way possible.
+Abu Bakr commanded Umar to bring Ali to him in the worst way possible. \
 `Ansab al Ashraf, vol 1, page 587`
 
 Ali and Zubayr were in the house of Fatima, and when the news of this reached Umar, he came and said: O daughter of The Messenger of Allah! The dearest person to us is your father, and after him, you. But, By Allah, this will not prevent me from commanding your house to be set on fire, if this gathering (Ali and Zubayr) is ever repeated. Fatima said: By Allah, he will do what he said. \
@@ -111,7 +111,7 @@ Abu Bakr commanded Umar to take Ali, for bay'ah, Umar went to Fatima's house wit
 Abu Bakr command Umar to take them out of their home, and if they resisted, to go to war with them, Umar went to her house with a flame. Fatima asked: O son of Khattab, is the fire that you have brought, to burn my house down? He said: Yes, unless you do what the Ummah has done. \
 `Aqd ul Farid, vol 3, page 63` `Tarikh Abul Fada, vol 1, page 156`
 
-Abu Bakr sent Umar to get bay'ah from those who had rejected him, who were staying at Fatima's house. Umar told them to come out but they rejected. Umar requested firewood and said: By Allah, either come out or I will burn down this house and whoever is inside it. He was told Fatima is inside, he said even if Fatimah is inside! \
+Abu Bakr sent Umar to get bay'ah from those who had rejected him, who were staying at Fatima's house. Umar told them to come out but they rejected. Umar requested firewood and said: By Allah, either come out or I will burn down this house and whoever is inside it. He was told Fatima is inside, he said even if Fatima is inside! \
 `A'lam an Nisa, vol 4, page 114`
 
 Umar said: If you do not give bay'ah, I will set the house on fire and I will not free anyone inside it, even if the daughter of The Mustafa is among them! \
@@ -123,11 +123,11 @@ They set her house on fire and caused Muhsin to be miscarried. \
 On the day of bay'ah, Umar hit Fatima and caused Muhsin to be miscarried.\
 `Al Wafi bil Wafiyat, vol 5, page 347`
 
-Umar kicked Fatimah and caused Muhsin to be miscarried. \
+Umar kicked Fatima and caused Muhsin to be miscarried. \
 `Lisan ul Mizan, by Ibn Hajar, vol 1, page 268`
-> Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in Siyar A'lam an Nubala (vol 15, page 576 and vol 9, page 555) as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar caused Fatimah to miscarry!
+> Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in Siyar A'lam an Nubala (vol 15, page 576 and vol 9, page 555) as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar kicked Fatima and caused her to miscarry!
 
-Umar said: By Allah, come out or I will burn this house upon it's residents. He was told Fatimah is inside, he said even if Fatimah is inside! Umar first knocked, then proceeded to kick the door down. Fatimah was yelling out: O father! O Prophet of Allah! \
+Umar said: By Allah, come out or I will burn this house upon it's residents. He was told Fatima is inside, he said even if Fatima is inside! Umar first knocked, then proceeded to kick the door down. Fatima was yelling out: O father! O Prophet of Allah! \
 `Al Imam Ali ibn Abi Talib, vol 1, pages 192-193, and vol 4, pages 274-277`
 
 **The Prophet (pbuh):** \
@@ -144,7 +144,7 @@ Indeed, those who annoy Allah and His Messenger, Allah has cursed them in this w
 Has not remained anything in me from the time of jahaliyah, except I am not ashamed of being Nikah'd or doing Nikah. \
 `Tabaqat al Kubra, vol 3, page 269`
 
-Some people claim nikah here means "taking care" but it's clearly refering to the jihaly way! So it can't be "taking care" or "marriage with the opposite sex" but rather "zina" or "lawat".
+Some people claim nikah here means "taking care" but it's clearly refering to the jihaly way! So it can't be "taking care" or "marriage with the opposite sex" but rather "zina" or "lawat". \
 In zina, the man is always the top and the woman is always the bottom, but since Umar is saying he's sometimes the top and sometimes the bottom, he must be talking about lawat and sodomy!
 
 # Umar would condemn The Prophet (pbuh) and would command him to do things another way!
@@ -189,7 +189,7 @@ A person who does not recite The Fatihah in his salah, it is as though he has no
 # A few of the bid'ahs of Umar
 
 Umar, regarding Taraweeh: This is a good bid'ah. \
-(Sahih Bukhari, v3, p45, h2010.)
+`Bukhari, vol 3, page 45, hadith 2010`
 
 **The Prophet (pbuh):** \
 All bid'ah is misguidance, all misguidance leads to hellfire. \
@@ -227,13 +227,13 @@ After me, whoever disagrees with Ali regarding the caliphate is a kafir! \
    `Bukhari, vol 6, page 2505` `Tarikh Tabari, vol 2, page 233`
 2. Bani Hashim and even Bani Umayyah highly preferred Ali. \
    `Minhaj us Sunnah, by Ibn Tayimiyah, vol 7, page 49`
-3. Fatimah did not go under the bay'ah of Abu Bakr, and during these 6 months until her death, neither did Ali. \
+3. Fatima did not go under the bay'ah of Abu Bakr, and during these 6 months until her death, neither did Ali. \
    `Bukhari, vol 4, page 1549 and page 3998`
 4. Umar: (My) bay'ah with Abu Bakr (in saqifah, which was the first bay'ah with him) was a miscalculation, but Allah saved us from its disaster. If someone tries to do something like this ever again, kill him. \
    `Bukhari, vol 6, page 2505`
-5. Umar had to go as far as setting the house of Fatimah on fire to strengthen Abu Bakr's position \
+5. Umar had to go as far as setting the house of Fatima on fire to strengthen Abu Bakr's position \
    [As previously mentioned.](#umars-attack-on-fatima)
-6. **Prophet (pbuh):** Pray behind any good or evil person.
+6. **Prophet (pbuh):** Pray behind any good or evil person. \
    `Kanz ul Ummal, vol 5, page 54, hadith 14815` `Fiqh ala Madhahib Arba'a, vol 1, pages 409-428`
 
 # Abu Bakr and Umar, terrible examples for the Ummah to follow
@@ -262,7 +262,7 @@ Say, is he who guides others superior, or he who won't be guided unless by other
 `Surah ay-Yunus, ayah 35`
 
 **Umar:** \
-If not for Ali, Umar would have perished and gone astray!
+If not for Ali, Umar would have perished and gone astray! \
 `Sharh Nahj ul-Balagha, by Ibn Abil Hadid, vol 1, page 18, and vol 12, page 179` `Yanabi ul Mawadda, vol 1, page 216, and vol 2, page 172, and vol 3, page 147` `Ta'wil Mukhtalif al Hadith, by Ibn Qutaybah, vol 1, page 162` `Tafsir Sam'ani, vol 5, page 154`
 
 Umar would seek refuge in Allah out of fear of Ali not being present to solve any of his future problems. \
@@ -325,7 +325,7 @@ I wish I was a sheep belonging to my family, so that they would fatten me, and w
 
 # Hearts of Satan despite their human bodies
 
-**The Prophet (pbuh):**
+**The Prophet (pbuh):** \
 After me, Imams will rule over you, who have not been guided by my guidance, and do not follow my Sunnah. Very soon, men among them will rule, their hearts are the hearts of Satan and their bodies are human! \
 `Muslim, vol 3, page 1476`
 
@@ -403,7 +403,7 @@ O Believers! Do not speak louder than The Messenger like how you speak with one 
 Aisha yelled at The Prophet (pbuh): I have now realized that you love Ali more than me and my father! And she repeated herself. \
 `Musnad Ahmad, vol 30, pages 372-373` `Sunan Abi Dawud, vol 4, page 300` `Sunan al Kubra, vol 7, page 488` `Fat-h ul Bari, vol 7, page 27`
 
-There are other instances of Aisha yelling at The Prophet (pbuh), refer to:
+There are other instances of Aisha yelling at The Prophet (pbuh), refer to: \
 `Sunan Abi Dawud, vol 4, page 300`
 
 **Aisha:** \
@@ -443,7 +443,7 @@ Aisha could not think of Ali nicely. \
 `Musnad Ahmad, vol 6, page 228, hadith 25956` `Fat-h ul Bari, by Ibn Hajar, vol 2, page 156` `Umdat ul Qari, vol 5, page 192`
 
 **Abu Bakr:** \
-I saw The Prophet, Ali, Fatimah, Hasan and Husayn under a tent, he said: O Muslims! I surrender to who surrenders to the people of the tent. I will be at war with who goes to war with them. No one loves us except blessed people born of pure marriage. No one hates us except miserable people born of Zina. \
+I saw The Prophet, Ali, Fatima, Hasan and Husayn under a tent, he said: O Muslims! I surrender to who surrenders to the people of the tent. I will be at war with who goes to war with them. No one loves us except blessed people born of pure marriage. No one hates us except miserable people born of Zina. \
 `Riyadh un Nadharah, vol 2, page 489`
 
 **The Prophet (pbuh):** \
@@ -469,7 +469,7 @@ Aisha: This is my house and I will not allow. \
 
 Muawiya was delighted to hear the news of Hasan's death and performed Sijda. (Exactly what A'ishah did for Ali!) \
 `Mukhtasar fi Akhbar al Bashar, by Abul Fada, vol 1, page 183` \
-Here I would again like to remind you of the hadith of the tent, enemies of Ali, Fatimah, Hasan and Husayn...
+Here I would again like to remind you of the hadith of the tent, enemies of Ali, Fatima, Hasan and Husayn...
 
 # Sunnis believe The Quran and Sunnah have been corrupted!
 
@@ -591,7 +591,7 @@ Our wali is Allah and he brings us justice. We are the wali of people and we bri
 Imam Sadiq: \
 Because the usurpers and the victim had died, the usurpers have been punished and the victim has been rewarded, as such, Ali did not wish to undo their mistake.
 
-Even if this wasn't the case, Ali still wouldn't take back Fadak because the majority of people would be against it, the same way he was generally against Tarawih but didn't deny those who wanted to pray it, the same way he chose Malik Ashtar but people chose Abu Musa Ash'ari.
+Even if this wasn't the case, Ali still wouldn't take back Fadak because the majority of people would be against it, the same way he was generally against Taraweeh but didn't deny those who wanted to pray it, the same way he chose Malik Ashtar but people chose Abu Musa Ash'ari.
 
 People picked an Imam for Taraweeh despite Ali being against it, when the news of this reached him, he sent Hasan to advise them against it, so the people yelled out: Oh God! They wish to destroy the sunnah of Umar! \
 `Sharh Nahj ul Balagha, by Ibn Abil Hadid, vol 12, page 282`
