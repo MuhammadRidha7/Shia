@@ -30,6 +30,7 @@ If you would like to communicate: muhammadreza7445@gmail.com
 26. [Shia wudhu and salah are Sunnah](#shia-wudhu-and-salah-are-sunnah)
 27. [Taqiyyah is a part of Islam](#taqiyyah-is-a-part-of-islam)
 28. [Why didn't Ali take Fadak back?](#why-didnt-ali-take-fadak-back)
+29. [Obeying Ali, Fatima, Hasan and Husayn, in The Quran](#obeying-ali-fatima-hasan-and-husayn-in-the-quran)
 
 # The consequences of Fatima's anger
 
@@ -276,7 +277,7 @@ Umar did not allow hadiths from The Prophet (pbuh) to be said, or even tafsir of
 `Sunan Ibn Majah, vol 1, page 12` `Mustadrak, vol 1, page 183` `Tabaqat al Kubra, vol 6, page 87` `Sunan Darimi, vol 1, page 329`
 
 Umar incarcerated three people for sharing hadith, among which is Ibn Mas'ud. \
-`Tadhkirat ul Huffadh, by Dhahabi, vol 1, page 7` `Majma uz-Zawa'id wa Manba' ul Fawa'id, by Haythami, vol 1, page 149`
+`Tadhkirat ul Huffadh, by Dhahabi, vol 1, page 7` `Majma uz Zawa'id, by Haythami, vol 1, page 149`
 
 Someone asked Umar a question about The Quran so Umar incarcerated him and hit him on several occasions, breaking his skull, before finally releasing him, and he sent people to go after him and shout: He wanted knowledge but it was a mistake! \
 `Sunan Darimi, vol 1, pages 66-67, hadiths 144-148` `Tafsir al Kabir, vol 23, page 128` `Musannaf, vol 11, page 426` `Tafsir Quran Adhim, by Ibn Kathir, vol 2, page 283` `Tarikh Madinah Damishq, by Ibn Asakir, vol 23, pages 411-412`
@@ -485,7 +486,7 @@ There was an ayah in The Quran saying if a kid drinks a woman's milk 5 times, th
 
 **Umar:** \
 The Quran that was given to The Prophet had 11,027,000 letters. \
-`Durr ul Manthur, by Suyuti, vol 6, page 422` `Jami us Saghir, by Suyuti, vol 2, page 264` `Itqan as Suyuti, vol 1, page 121` `Mu'jam al Ausat, by Tabarani, vol 6, page 361` `Majma' uz Zawa'id al Haythami, vol 7, page 163` \
+`Durr ul Manthur, by Suyuti, vol 6, page 422` `Jami us Saghir, by Suyuti, vol 2, page 264` `Itqan as Suyuti, vol 1, page 121` `Mu'jam al Ausat, by Tabarani, vol 6, page 361` `Majma uz Zawa'id, by Haythami, vol 7, page 163` \
 (Current Qu'ran has less than 2/3rds of that!)
 
 **Ibn Mas'ud:** \
@@ -594,3 +595,39 @@ Even if this wasn't the case, Ali still wouldn't take back Fadak because the maj
 
 People picked an Imam for Taraweeh despite Ali being against it, when the news of this reached him, he sent Hasan to advise them against it, so the people yelled out: Oh God! They wish to destroy the sunnah of Umar! \
 `Sharh Nahj ul Balagha, by Ibn Abil Hadid, vol 12, page 282`
+
+# Obeying Ali, Fatima, Hasan and Husayn, in The Quran
+
+**Allah (swt):** \
+Indeed, Allah only wants to remove impurity from you, O Ahl al Bayt! And purify you thoroughly. \
+`Surah al-Ahzab, ayah 33`
+
+First, we'll discuss who this ayah is about, then it's implications. \
+Some claim that because the Ahl al Bayt of Ibrahim included his wife, then the Ahl al Bayt of The Prophet (pbuh) must as well, but that isn't necessarily true. \
+Some claim that because the context of the verse is calling upon the wives, then this part must be about them as well, but if you take a look at authentic Sunni sources (see below) you'd realize that's just a misinterpretation of The Quran.
+
+When the ayah of purification was revealed in the house of Umm Salama, The Prophet (pbuh) gathered Ali, Fatima, Hasan and Husayn under the cloak and then recited: \
+Indeed, Allah only wants to remove impurity from you, O Ahl al Bayt! And purify you thoroughly. \
+Then Umm Salama asked: O Prophet! Am I one of you? The Prophet (pbuh) responded: You are on the correct path (and that is enough for you).
+`Sunan Tirmidhi, vol 5, page 351`
+
+**Aisha:** \
+The Prophet, Ali, Fatima, Hasan and Husayn gathered under a cloak, then The Prophet recited: \
+Indeed, Allah only wants to remove impurity from you, O Ahl al Bayt! And purify you thoroughly. \
+`Muslim, vol 7, page 130`
+
+Whenever The Prophet (pbuh) entered the house of Fatima, he would say: \
+Assalam alaykum Ahl al Bayt wa rahmatullah wa barakatuh \
+Then, he would recite the ayah of purification. \
+`Majma uz Zawa'id, by Haytham, vol 9, page 169`
+
+Whenever The Prophet (pbuh) passed by the house of Fatima, he would recite the ayah of purification three times. \
+`Shawahid ut Tanzil, vol 2, page 20`
+
+And there are many more hadiths like this! Now, onto the implications:
+
+If someone tells you that something is wajib, or that something is haram, and The Quran has purified them from lying, then obeying them is in reality just obeying Allah. \
+
+Additionally, Allah has two types of will. Tashri'i will, which basically means "I want this to happen, but whether or not is will is up to you" and Takwini will, which means "I want this to happen, and it will happen, for am I all powerful." Now, Allah wants us all to be purified, not just the Ahl al Bayt, otherwise he wouldn't have given us Islamic laws to follow, but that's just Tashri'i, meaning it's upto us to do what Allah wants or not, to be purified or not, so when Allah says he ONLY wants to purify Ahl al Bayt, it's clearly not talking about Tashri'i will, but Takwini will, meaning there is no doubt in the purification of Ahl al Bayt!
+
+Allah has said a similar thing about the Sahaba, "And He sent down rain from the sky to purify you, free you from Satan's whispers, strengthen your hearts, and make your steps firm." But since they aren't part of the Ahl al Bayt, then their purification isn't Takwini and guaranteed, but rather Tashri'i and up to them to follow or not. Shia interprets this "water" as being Ahl al Bayt, claiming the Sahaba have been given the chance of purification through the Ahl al Bayt.
