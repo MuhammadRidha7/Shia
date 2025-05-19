@@ -13,7 +13,7 @@ If you would like to communicate: muhammadreza7445@gmail.com
 9. [Umar would recite Al-Fatiha incorrectly, even in salah](#umar-would-recite-al-fatiha-incorrectly-even-in-salah)
 10. [A few of the bid'ahs of Umar](#a-few-of-the-bidahs-of-umar)
 11. [Abu Bakr's caliphate wasn't just controversial](#abu-bakrs-caliphate-wasnt-just-controversial)
-12. [Abu Bakr and Umar, terrible examples for the Ummah to follow](#abu-bakr-and-umar-terrible-examples-for-the-ummah-to-follow)
+12. [Abu Bakr and Umar, are they the examples for the Ummah to follow?](#abu-bakr-and-umar-are-they-the-examples-for-the-ummah-to-follow)
 13. [Abu Bakr and Umar kept drinking, especially Umar](#abu-bakr-and-umar-kept-drinking-especially-umar)
 14. [Abu Bakr and Umar wished they were feces but never human!](#abu-bakr-and-umar-wished-they-were-feces-but-never-human)
 15. [Hearts of Satan despite their human bodies](#hearts-of-satan-despite-their-human-bodies)
@@ -159,11 +159,11 @@ Umar took The Prophet (pbuh) by his shirt and said: Hasn't Allah forbidden you f
 # Umar would urinate while standing
 
 **Umar:** \
-The Prophet saw me while I was peeing while standing, and told me not to do it while standing. \
+The Prophet (pbuh) saw me while I was urinating while standing, and told me not to do it while standing. \
 `Sunan Tirmidhi, vol 1, page 18`
 
 **The Prophet (pbuh):** \
-Among the betrayals (to oneself) is to pee while standing. \
+Among the betrayals (to oneself) is to urinate while standing. \
 `Umdat ul Qari, vol 3, page 135`
 
 # Umar would disobey The Quran by skipping prayers
@@ -178,8 +178,8 @@ If I don't find water, I will not pray. \
 
 # Umar would recite Al-Fatiha incorrectly, even in salah
 
-Correct: **Sirat alladhina** an'amta alayhim ghayr-il-maghdubi alayhim **wa la-dhallin** \
-Umar would always recite like this: **Sirata man** an'amta alayhim ghayri-il-maghdhubi alayhim **ghayr-idh-dhallina alayhim wa ghayr-adh-dhallin** \
+Correct: __Sirat alladhina__ an'amta alayhim ghayr-il-maghdubi alayhim __wa la-dhallin__ \
+Umar would always recite like this: __Sirata man__ an'amta alayhim ghayri-il-maghdhubi alayhim __ghayr-idh-dhallina alayhim wa ghayr-adh-dhallin__ \
 `Masahif, by Ibn Abi Dawud, vol 1, pages 284-286` \
 (Ibn Abi Dawud and Ibn Athir have said this hadith has sahih isnad.)
 
@@ -230,14 +230,14 @@ After me, whoever disagrees with Ali regarding the caliphate is a kafir! \
    `Minhaj us Sunnah, by Ibn Tayimiyah, vol 7, page 49`
 3. Fatima did not go under the bay'ah of Abu Bakr, and during these 6 months until her death, neither did Ali. \
    `Bukhari, vol 4, page 1549 and page 3998`
-4. Umar: (My) bay'ah with Abu Bakr (in saqifah, which was the first bay'ah with him) was a miscalculation, but Allah saved us from its disaster. If someone tries to do something like this ever again, kill him. \
+4. **Umar:** (My) bay'ah with Abu Bakr (in saqifah, which was the first bay'ah with him) was a miscalculation, but Allah saved us from its disaster. If someone tries to do something like this ever again, kill him. \
    `Bukhari, vol 6, page 2505`
 5. Umar had to go as far as setting the house of Fatima on fire to strengthen Abu Bakr's position \
    [As previously mentioned.](#umars-attack-on-fatima)
 6. **Prophet (pbuh):** Pray behind any good or evil person. \
    `Kanz ul Ummal, vol 5, page 54, hadith 14815` `Fiqh ala Madhahib Arba'a, vol 1, pages 409-428`
 
-# Abu Bakr and Umar, terrible examples for the Ummah to follow
+# Abu Bakr and Umar, are they the examples for the Ummah to follow?
 
 **The Prophet (pbuh):** \
 Whoever takes leadership over a group of Muslims while he knows there is better than him, he has betrayed Allah, His Messenger, and Muslims. \
@@ -252,7 +252,7 @@ The best of you is the best to his wives. \
 `Sunan Ibn Majah, vol 1, page 636, hadith 1978`
 
 **Aisha:** \
-The Prophet never hit anything with his hand, not a wife, nor a servant. \
+The Prophet (pbuh) never hit anything with his hand, not a wife, nor a servant. \
 `Muslim, vol 4, page 1814, hadith 2328`
 
 Ash'ath ibn Qays said that he was invited over to Umar's house, and he beat up his wife. \
@@ -330,7 +330,7 @@ I wish I was a sheep belonging to my family, so that they would fatten me, and w
 After me, Imams will rule over you, who have not been guided by my guidance, and do not follow my Sunnah. Very soon, men among them will rule, their hearts are the hearts of Satan and their bodies are human! \
 `Muslim, vol 3, page 1476`
 
-The Prophet (pbuh) told Abu Bakr: Indeed, Shirk is hidden inside you. Abu Bakr asked: Is shirk other than worshipping other than Allah? The Prophet (pbuh) repeated: By him, who my life is in the hand of, shirk is hidden within you! \
+**The Prophet (pbuh)** told Abu Bakr: Indeed, Shirk is hidden inside you. Abu Bakr asked: Is shirk other than worshipping other than Allah? The Prophet (pbuh) repeated: By him, who my life is in the hand of, shirk is hidden within you! \
 `Adab ul Farid, by Bukhari, page 243, number 726`
 
 **Abu Hanifa:** \
@@ -356,7 +356,7 @@ This shows how little Ali and other sahaba cared about Uthman, they did nothing 
 
 # Uthman and Aisha considered each other kafir
 
-Uthman told Aisha that she is like the wife of Nuh and the wife of Lut, and Aisha would say: O People! This is the shirt of The Prophet of Allah! It has not yet been destroyed, but his Sunnah has been destroyed. \
+Uthman told Aisha that she is like the wife of Nuh and the wife of Lut, and Aisha would say: O People! This is the shirt of The Prophet of Allah (pbuh)! It has not yet been destroyed, but his Sunnah has been destroyed. \
 `Mahsul Razi, vol 4, page 343.`
 
 Uthman said that he will say every "bad thing" that comes to mind to these two "Fitna makers" (Aisha and Hafsa). \
@@ -408,11 +408,11 @@ There are other instances of Aisha yelling at The Prophet (pbuh), refer to: \
 `Sunan Abi Dawud, vol 4, page 300`
 
 **Aisha:** \
-I was laying down close to The Prophet praying, whenever he would do Sijda, he would squeeze my foot (to remind her that it's impolite to lay down with your feet pointing at him), and I would retreat my legs, and when he stood up, I would point them again. \
+I was laying down close to The Prophet (pbuh) praying, whenever he would do Sijda, he would squeeze my foot (to remind her that it's impolite to lay down with your feet pointing at him), and I would retreat my legs, and when he stood up, I would point them again. \
 `Bukhari, vol 1, page 86 and page 108`
 
 **Aisha:** \
-One night, The Prophet went out, and I got jealous (afraid that he would spend my night with someone else) and when The Prophet returned and saw me, he asked me if I got jealous, and I said: How would I not be jealous with someone like you? \
+One night, The Prophet (pbuh) went out, and I got jealous (afraid that he would spend my night with someone else) and when The Prophet (pbuh) returned and saw me, he asked me if I got jealous, and I said: How would I not be jealous with someone like you? \
 `Muslim, vol 4, page 2169`
 
 **Aisha:** \
@@ -424,7 +424,7 @@ And he does not speak out of desire. \
 `Surah an-Najm, ayah 3`
 
 One day, The Prophet (pbuh) said the name of Khadijah (in his talks), so Aisha said: \
-Do I look like I have to do anything with her? She was but a weak old woman, Allah has given you better. The Prophet became so angry that the hair on his head was standing. \
+Do I look like I have to do anything with her? She was but a weak old woman, Allah has given you better. The Prophet (pbuh) became so angry that the hair on his head was standing. \
 `Bukhari, vol 5, page 39` `Muslim, vol 4, page 1889` (Similar occasions: `Musnad Ahmad, vol 41, page 356` `Bukhari, vol 3, page 1389` `Muslim, vol 4, page 1889`)
 
 **Allah (swt):** \
@@ -437,14 +437,14 @@ Aisha was delighted to hear the news of the death of Ali and performed Sijda. \
 `Tabaqat al Kubra, vol 3, page 40` `Tarikh Tabari, vol 3, page 159`
 
 Aisha disliked saying the name of Ali: \
-Aisha said: When the sickness of The Prophet worsened, he would be carried around by Abbas and another person, while his feet would touch the ground. Ibn Abbas asked Ubaydullah: Do you know who that other person was? Ubaydullah said no. Ibn Abbas said: He was Ali ibn Abi Talib. \
+Aisha said: When the sickness of The Prophet (pbuh) worsened, he would be carried around by Abbas and another person, while his feet would touch the ground. Ibn Abbas asked Ubaydullah: Do you know who that other person was? Ubaydullah said no. Ibn Abbas said: He was Ali ibn Abi Talib. \
 `Bukhari, vol 1, page 83`
 
 Aisha could not think of Ali nicely. \
 `Musnad Ahmad, vol 6, page 228, hadith 25956` `Fat-h ul Bari, by Ibn Hajar, vol 2, page 156` `Umdat ul Qari, vol 5, page 192`
 
 **Abu Bakr:** \
-I saw The Prophet, Ali, Fatima, Hasan and Husayn under a tent, he said: O Muslims! I surrender to who surrenders to the people of the tent. I will be at war with who goes to war with them. No one loves us except blessed people born of pure marriage. No one hates us except miserable people born of Zina. \
+I saw The Prophet (pbuh), Ali, Fatima, Hasan and Husayn under a tent, he said: O Muslims! I surrender to who surrenders to the people of the tent. I will be at war with who goes to war with them. No one loves us except blessed people born of pure marriage. No one hates us except miserable people born of Zina. \
 `Riyadh un Nadharah, vol 2, page 489`
 
 **The Prophet (pbuh):** \
@@ -468,7 +468,8 @@ It cannot be inheritance because she testified to the favor of Abu Bakr that pro
 It cannot be Mihriya either because The Quran (Surah al-Ahzab, ayah 50) has said the wives of The Prophet (pbuh) are halal for him (which wouldn't be the case for an unpaid wife). \
 `Siyar A'lam an Nubala, vol 2, page 605`
 
-Aisha: This is my house and I will not allow. \
+**Aisha:** \
+This is my house and I will not allow. \
 `Tarikh Ya'qubi, vol 2, page 225`
 
 # Sunnis believe The Quran and Sunnah have been corrupted!
@@ -480,12 +481,12 @@ The ayah for stoning someone to death and the ayah for breastfeeding to an elder
 `Sunan Ibn Majah, vol 6, page 72`
 
 **Aisha:** \
-There was an ayah in The Quran saying if a kid drinks a woman's milk 5 times, they become mahram, and this ayah was still in The Quran when The Prophet died. \
+There was an ayah in The Quran saying if a kid drinks a woman's milk 5 times, they become mahram, and this ayah was still in The Quran when The Prophet (pbuh) died. \
 `Muslim 3487` \
 (It isn't now, so it must be corruption!)
 
 **Umar:** \
-The Quran that was given to The Prophet had 11,027,000 letters. \
+The Quran that was given to The Prophet (pbuh) had 11,027,000 letters. \
 `Durr ul Manthur, by Suyuti, vol 6, page 422` `Jami us Saghir, by Suyuti, vol 2, page 264` `Itqan as Suyuti, vol 1, page 121` `Mu'jam al Ausat, by Tabarani, vol 6, page 361` `Majma uz Zawa'id, by Haythami, vol 7, page 163` \
 (Current Qu'ran has less than 2/3rds of that!)
 
@@ -497,7 +498,7 @@ If I was not afraid that the hearts would deviate, I would say the ayat that hav
 `Kibrit ul Ahmar, page 143`
 
 **Ibn Mas'ud:** \
-During the life of The Prophet we would recite (Surah al-Ma'idah, ayah 67) as such: O Messenger! Deliver that which has been sent down to you from your Lord, that Ali is the Maula of Mu'minin, and if you do not, you will not have communicated His message, and Allah shall protect you from the people. Indeed Allah does not guide the faithless lot. \
+During the life of The Prophet (pbuh) we would recite (Surah al-Ma'idah, ayah 67) as such: O Messenger! Deliver that which has been sent down to you from your Lord, that Ali is the Maula of Mu'minin, and if you do not, you will not have communicated His message, and Allah shall protect you from the people. Indeed Allah does not guide the faithless lot. \
 `Durr ul Manthur, vol 3, page 117`
 
 Our narrations regarding the corruption of The Quran are uncountable. \
@@ -508,13 +509,13 @@ Our narrations regarding the corruption of The Quran are uncountable. \
 By Allah! Nothing remains from the Sunnah of Muhammad other than them praying together! \
 `Bukhari 622`
 
-I do not see anything remaining of the Sunnah of The Prophet. \
+I do not see anything remaining of the Sunnah of The Prophet (pbuh). \
 `Bukhari 506`
 
-All of the Sunnah of The Prophet has been destroyed, except salah, but now, that too, has been destroyed. \
+All of the Sunnah of The Prophet (pbuh) has been destroyed, except salah, but now, that too, has been destroyed. \
 `Bukhari 507`
 
-All of the Sunnah of The Prophet have been corrupted, even salah. \
+All of the Sunnah of The Prophet (pbuh) have been corrupted, even salah. \
 `Al Umm, by Imam Shafi'i, Kitab as-Salat al-Eydayn, vol 1, page 269`
 
 Nothing remains of the Sunnah, other than Adhan. \
@@ -525,7 +526,7 @@ If the Sahaba return, they will not see anything among you of the Sunnnah, other
 
 # Is Tawassul really shirk?
 
-Bilal went to the grave of The Prophet and said: O Messenger of Allah! The people are perishing from the lack of water! So The Prophet came to him in a dream and said: Go to Umar and give him the news of rain. He did, and Umar cried. \
+Bilal went to the grave of The Prophet (pbuh) and said: O Messenger of Allah! The people are perishing from the lack of water! So The Prophet (pbuh) came to him in a dream and said: Go to Umar and give him the news of rain. He did, and Umar cried. \
 `Musannaf, vol 11, page 118, hadith 32538` \
 (Confirmed by Ibn Kathir, Ibn Hajar, etc.)
 
@@ -541,7 +542,7 @@ The Prophet (pbuh) would sometimes pray Dhuhr and Asr together and Maghrib and I
 `Sahih Muslim, vol 1, page 489, and hadith 327` `Musnad Ahmad, vol 3, page 280, hadith 1918 and vol 3, page 283, hadith 1929` `Sunan Abi Dawud, vol 2, page 6`
 
 **Ibn Abbas:** \
-The Prophet did as such while he was not worried of anything nor was there rain. \
+The Prophet (pbuh) did as such while he was not worried of anything nor was there rain. \
 `Muslim, vol 1, page 490` `Sunan Tirmidhi, vol 1, page 354, hadith 187` `Sunan Abi Dawud, vol 2, page 6, hadith 1211` `Sunan Nisa'i, vol 1, page 315, hadith 601` `Musnad Ahmad, vol 5, page 81, hadith 3235`
 
 **Imam Malik:** \
@@ -560,7 +561,7 @@ Those who become kafer after their belief, except those who are forced, while th
 And a believer from the kinsmen of Fir'oun who was hiding his belief, said: ... \
 `Surah al-Ghafir, ayah 28`
 
-He who does not have Taqiyah, does not have belief. \
+He who does not have Taqiyyah, does not have belief. \
 `Musannaf, vol 6, page 474, hadith 33045` `Kanz ul Ummal, vol 3, page 43, hadith 5665`
 
 **The Prophet (pbuh):** \
@@ -612,7 +613,7 @@ Then Umm Salama asked: O Prophet! Am I one of you? The Prophet (pbuh) responded:
 `Sunan Tirmidhi, vol 5, page 351`
 
 **Aisha:** \
-The Prophet, Ali, Fatima, Hasan and Husayn gathered under a cloak, then The Prophet recited: \
+The Prophet (pbuh), Ali, Fatima, Hasan and Husayn gathered under a cloak, then The Prophet (pbuh) recited: \
 Indeed, Allah only wants to remove impurity from you, O Ahl al Bayt! And purify you thoroughly. \
 `Muslim, vol 7, page 130`
 
@@ -626,7 +627,7 @@ Whenever The Prophet (pbuh) passed by the house of Fatima, he would recite the a
 
 And there are many more hadiths like this! Now, onto the implications:
 
-If someone tells you that something is wajib, or that something is haram, and The Quran has purified them from lying, then obeying them is in reality just obeying Allah. \
+If someone tells you that something is wajib, or that something is haram, and The Quran has purified them from lying, then obeying them is in reality just obeying Allah.
 
 Additionally, Allah has two types of will. Tashri'i will, which basically means "I want this to happen, but whether or not is will is up to you" and Takwini will, which means "I want this to happen, and it will happen, for am I all powerful." Now, Allah wants us all to be purified, not just the Ahl al Bayt, otherwise he wouldn't have given us Islamic laws to follow, but that's just Tashri'i, meaning it's upto us to do what Allah wants or not, to be purified or not, so when Allah says he ONLY wants to purify Ahl al Bayt, it's clearly not talking about Tashri'i will, but Takwini will, meaning there is no doubt in the purification of Ahl al Bayt!
 
