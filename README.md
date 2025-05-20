@@ -200,7 +200,7 @@ Mut'ah was halal during the lifetime of The Prophet (pbuh) and even Abu Bakr, bu
 `Muslim, vol 2, page 1023` `Sunan al Kubra, vol 7, page 237` `Musnad Ahmad, vol 1, page 52 and vol 3, page 325` `Kanz ul Ummal, vol 8, page 293` `Tarikh Madinah Damishq, by Ibn Asakir, vol 64, page 71` `Tahdhib ul Kamal, vol 31, page 214`
 
 Imam Malik and Ibn Abbas believed Mut'ah is halal. \
-`Mabsut, vol 5, page 152` `Mustadrak, vol 2, page 334, hadith 3192.`
+`Mabsut, vol 5, page 152` `Mustadrak, vol 2, page 334, hadith 3192`
 
 Ibn Jurayj, famous Sunni scholar, also known as Shaykh-ul-Haram and Faqih-ul-Haram, had done Mut'ah with 90 women. \
 `Siyar A'lam an Nubala, vol 6, page 333`
@@ -609,7 +609,7 @@ Some claim that because the context of the verse is calling upon the wives, then
 
 When the ayah of purification was revealed in the house of Umm Salama, The Prophet (pbuh) gathered Ali, Fatima, Hasan and Husayn under the cloak and then recited: \
 Indeed, Allah only wants to remove impurity from you, O Ahl al Bayt! And purify you thoroughly. \
-Then Umm Salama asked: O Prophet! Am I one of you? The Prophet (pbuh) responded: You are on the correct path (and that is enough for you).
+Then Umm Salama asked: O Prophet! Am I one of you? The Prophet (pbuh) responded: You are on the path of the righteous (and that is enough for you). \
 `Sunan Tirmidhi, vol 5, page 351`
 
 **Aisha:** \
