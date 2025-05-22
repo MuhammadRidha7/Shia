@@ -463,14 +463,19 @@ Aisha, Talha and Zubayr carried out the war of Jamal against Ali.
 # Did Aisha really own the house?
 
 If Aisha did not own the house of The Prophet (pbuh) in which he was buried, then who was she to allow Abu Bakr and Umar to be buried next to him but not Hasan? \
-If Aisha did own the house, then she either received it as Mihriya (payment to wife as part of marriage) or inheritance. \
+If Aisha did own the house, then she either received it as mihriya (payment to wife as part of marriage) or inheritance. \
 It cannot be inheritance because she testified to the favor of Abu Bakr that prophets do not leave inheritance. \
-It cannot be Mihriya either because The Quran (Surah al-Ahzab, ayah 50) has said the wives of The Prophet (pbuh) are halal for him (which wouldn't be the case for an unpaid wife). \
+It cannot be mihriya either because The Quran (Surah al-Ahzab, ayah 50) has said the wives of The Prophet (pbuh) are halal for him and have been paid mihriya. \
 `Siyar A'lam an Nubala, vol 2, page 605`
 
 **Aisha:** \
 This is my house and I will not allow. \
 `Tarikh Ya'qubi, vol 2, page 225`
+
+If we go by the argument of Abu Bakr and Umar that prophets do not leave inheritance and that what they leave behind is charity, then the burial of The Prophet (pbuh) comes into question, as he is buried on property that belongs to the Muslims, for which obviously no permission was taken. In fact, even if all the Muslims had granted permission, it still would have been impossible to bury The Prophet (pbuh) there since taking charity is prohibited on him and his Ahl al Bayt. We're left with two choices:
+
+1. Abu Bakr and Umar being buried next to The Prophet (pbuh) is not a virtue because The Prophet (pbuh) himself was buried illegally!
+2. Prophets do leave behind inheritance, and Abu Bakr and Umar usurped the right of Fatima by fabricating hadith, and Aisha and Hafsa testified to false hadith for personal gain.
 
 # Sunnis believe The Quran and Sunnah have been corrupted!
 
